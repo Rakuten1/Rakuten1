@@ -6,7 +6,7 @@
 - 👯 I’m looking to collaborate on Youtube
 - 🤔 I’m looking for help with App Development
 - 💬 Ask me about tech related stuffs
-- 📫 How to reach me: gmail- anirbanmondal568@gmail.com
+- 📫 How to reach me: gmail- anirbanmondal568@gmail.com ,Instagram -@be._.anirban (https://www.instagram.com/be._.anirban)
 - 😄 Pronouns: He/His
 - ⚡ Fun fact: Yawning Cools My Brain.
 -->
